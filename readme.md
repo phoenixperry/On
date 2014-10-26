@@ -1,13 +1,17 @@
 The core screamed out. The display in front of Anna flashed one thousand alerts and appeares to be made of red light so many systems are critical. A neutral voice reads out,
 
 
+
 	“63 new messages”
+
 
 
 	“200 alerts” 
 
 
+
 	“System 63, unresponsive.” 
+
 
 Anna is still. The shock was all consuming. Everything feels far off and underwater. Seconds ago she was asleep, floating in zero g in a peace deeper than anything she had ever felt on any planet. A feeling of immobility grips her and she gazes outward, eyes unfocused. She wants to move but her body was not allowing it yet. Stars flicker in a static haze as the space shimmers, shifting silently around them. Awakening from a dream into a nightmare, suddenly her mind shifts. She feels her awareness tighten, her visual inlay notices her neurotransmitters signal a shift in consciousness and she rapidly became viscerally aware of her surroundings. Instinct takes hold. She reaches over and grabs a small silver wire and slipped it into her temple input. 
 
