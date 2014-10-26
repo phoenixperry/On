@@ -23,7 +23,7 @@ I reach up and pull out my neural in and once again I’m whole. I slap the gray
 
  “Biotech? Anna are you saying there’s a living thing outside? In dead space? That’s impossible. Nothing could possibly survive out there.” 
 
- “But something has. All I can tell you is that the ship feels it moving. It’s not mechanical. It feels like some kind of slime leech. Worst yet, it’s draining power from the core. It’s possible that something managed to hitch a ride with us from the Archimedes system. We came in close enough contact with Lemmas during the terraforming initiation that it could be possible. Maybe something was alive in the upper atmosphere and latched on right as we phase shifted. Either way we are going to need Jane. It is nothing that’s ever been accounted for in the database or Eliza would of known. I would have recognised it.” 
+ “But something has. All I can tell you is that the ship feels it moving. It’s not mechanical. It feels like some kind of slime leech. Worst yet, it’s draining power from the core. It’s possible that something managed to hitch a ride with us from the Archimedes system. We came in close enough contact with Lemmas during the terraforming initiation. Maybe something was alive in the upper atmosphere and latched on right as we phase shifted. Either way we are going to need Jane. It is nothing that has  been accounted for in the database or Eliza would of known. I would have recognised it.” 
 
 
 
