@@ -10,7 +10,9 @@ One thing is certain, the ship is not going to stop moving space or she would al
 
 I begin to assess the situation. My hip was definitely dislocated but my leg was still attached. my back experiences something something a shade beyond pain. My vertebrae are completely out of alignment. The bones of my spine are twisted adjusting for the weight that has pulled my hip out of place. Why was the core failing? I feel like I’ve been punched in the stomach. A weakness flows from my centre through my leg and into that black tangle of a leach on my foot. 
 
-I reach up and pull out my neural in and once again I’m whole. I slap the gray panel and slowly began to shift down to the floor as gravity engages. I see my uniform and just don’t care. For now, my standard issue black shorts and tank will need to do. They can handle the ship commander in pyjamas if it means they get to survive. I emerge from my room and Nina has somehow beat me out into the hall in full uniform.  “Anna, what’s happening? I have distress signals coming in from every engineering sensor onboard.” 
+I reach up and pull out my neural in and once again I’m whole. I slap the gray panel and slowly began to shift down to the floor as gravity engages. I see my uniform and just don’t care. For now, my standard issue black shorts and tank will need to do. They can handle the ship commander in pyjamas if it means they get to survive. I emerge from my room and Nina has somehow beat me out into the hall in full uniform.  
+
+“Anna, what’s happening? I have distress signals coming in from every engineering sensor onboard.” 
 
 “Honestly? I have no idea. But something appears to have grabbed onto us. It’s leaching energy and I’m not sure what it is. We need to get biotech on it.” 
 
