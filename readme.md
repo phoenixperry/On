@@ -1,4 +1,4 @@
-The core screamed out. The display in front of Anna flashed one thousand alerts and appeares to be made of red light so many systems are critical. A neutral voice reads out,
+The core screamed out. The display in front of Anna flashed one thousand alerts and appears to be made of red light so many systems are critical. A neutral voice reads out,
 
 
 	“63 new messages”
